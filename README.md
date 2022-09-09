@@ -1,1 +1,1 @@
-Nullius addictus jurare in verba magistry
+Nullius addictus jurare in verba magistri
